@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @saarks
-- 👀 I’m interested in peachylichee 
+- 👀 I’m interested in nothing 
 - 🌱 I’m currently studying at HSE DSBA (1st year)
 - 💞️ I’m looking to collaborate on ))
 - 📫 How to reach me: @yuma_jke on any socials
